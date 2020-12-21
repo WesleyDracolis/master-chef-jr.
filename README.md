@@ -1,1 +1,2 @@
-# master-chef-jr.
+# master-chef-jr
+Cookies are pretty much the best part of Christmas, right? Whether you're making them for a party, Santa, or just a cozy night in by the fireplace, there's always a reason to whip up a batch of cookies during the holidays. Want even more easy cookie ideas? Sugar cookies allow you to cook and decorate on your time schedule, no-bake cookies save space in the oven, and these snowball cookies couldn't be simpler. Problems solved.
